@@ -5,7 +5,7 @@ The easiest way to deploy this Bot
 
 - Support Group 1 :- [Group 1](http://t.me/Luv_love_Town)
 
-- Support Group 2 :- [Group 2t](https://t.me/+ePPUhMn4jKJjZDlh)
+- Support Group 2 :- [Group 2](https://t.me/+ePPUhMn4jKJjZDlh)
 
 
 ```
